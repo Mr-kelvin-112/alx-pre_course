@@ -1,1 +1,0 @@
-okey de manager (original)
